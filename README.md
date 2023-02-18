@@ -4,8 +4,8 @@
 
 <p align="center">
     『 16y/o 』
-    『 she/her』
-    『 a pan 🍳 』
+    『 vi/vin 』
+    『 a furnace 🍕 』
 </p>
 
 <p align="center">
